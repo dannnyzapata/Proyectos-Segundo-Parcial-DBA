@@ -1,1 +1,0 @@
-# Proyectos-Segundo-Parcial-DBA
